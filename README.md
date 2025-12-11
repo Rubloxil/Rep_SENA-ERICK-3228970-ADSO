@@ -1,4 +1,4 @@
-# ATENCION:En caso de que video presente **problemas de visualiusación** se adjunta Link:https://notebooklm.google.com/notebook/628eddd7-6b18-49b9-bd8f-2c9a6373491b?artifactId=9b001040-1a31-4b7f-8f26-edf3451798dc
+# ATENCION:En caso de que video presente **problemas de visualisación** se adjunta Link:https://notebooklm.google.com/notebook/628eddd7-6b18-49b9-bd8f-2c9a6373491b?artifactId=9b001040-1a31-4b7f-8f26-edf3451798dc
 ## 📦 Entregas de Evidencias
 
 ## 🗓️ Descripción
